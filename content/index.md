@@ -1,5 +1,5 @@
 ---
-title: Welcome to Quartz
+title: Ouroborus Wiki
 ---
 
 This is a blank Quartz installation.
