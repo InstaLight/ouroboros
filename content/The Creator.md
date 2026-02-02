@@ -11,4 +11,4 @@ Title: The Creator
 **The Creator**, despite appearances and age, behaves extremely childish. Everything they do is simply for their own enjoyment, with no regards for morals or how thier actoin affect others. They have no concept of right or wrong, no ideas of good or bad.
 
 # Abilities
-    - **Creation** - using nothing but their thoughts, **The Creator** is able to to form matter out of thin air. They first use this ability to create a friend for themself, a god by the name of [[Judgement]]. Additionally, **The Creator** can expend an insane amount of energy to create their own universe [[Battle of the Gods]].
+- **Creation** - using nothing but their thoughts, **The Creator** is able to to form matter out of thin air. They first use this ability to create a friend for themself, a god by the name of [[Judgement]]. Additionally, **The Creator** can expend an insane amount of energy to create their own universe [[Battle of the Gods]].
