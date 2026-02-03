@@ -15,5 +15,6 @@ When Grimm is assigned a task, he will stop at nothing to get it accomplished, n
 - *Soul Collection* - Grimm has the ability to absorb an individuals soul, adding their strength to his in the process, and allow him to regenerate any damage he may have suffered
 - *Shadow Leap* - can dissolve into and move through shadows at extreme speeds, he uses it as a form of teleportation
 - *Energy Manipulation* - can combine mass amounts of darkness into concentrated blasts
+- *Soul Swap* - is able to change anyones soul, including his own, with anothers
 # Equipment
 - *Dusk* - Grimms beloved weapon, give to him by the Creator. It can separate a persons soul from their body with a single strike. Similar to Grimm's Soul Collection ability, Dusk is able to grow in strength with every life it takes. The more power it has stored in it, the stronger the weapon becomes, changing forms as it grows. Due to it's unique properties, only gods can wield this weapon. 
