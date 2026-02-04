@@ -6,7 +6,7 @@ So, you wanna start reading up about Oroboros! Below will be list of pages to re
 
 # Origins
 - [[The Child]] [Character]
-- [[Creation]] [Event]
+- [[1 - Creation]] [Event]
 - [[Judgement]] [Character]
 - [[Grimm]] [Character]
 - [[X]] [Character]
