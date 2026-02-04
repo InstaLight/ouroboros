@@ -16,4 +16,4 @@ So, you wanna start reading up about Oroboros! Below will be list of pages to re
 - [[Zephyr]] [Character]
 - [[Lux]] [Character]
 - [[Luna]] [Character]
-- [[Battle of the Gods]] [Event]
+- [[Love and Death]] [Event]
