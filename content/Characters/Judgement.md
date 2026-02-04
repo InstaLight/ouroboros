@@ -1,7 +1,7 @@
 ---
 Title: Judgement
 ---
-**Judgement** is the god of Justice, and is the first living creation of [[The Child]] ([[Creation]]). It lived alone with The Creator, before getting split into [[Grimm]] and [[X]].
+**Judgement** is the god of Justice, and is the first living creation of [[The Child]] ([[1 - Creation]]). It lived alone with The Creator, before getting split into [[Grimm]] and [[X]].
 
 # Appearance
 Judgement has three defining features:
