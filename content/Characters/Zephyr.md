@@ -1,0 +1,8 @@
+Solaris is the god of winds, a child of [[X]], and  the second youngest of his three siblings ([[Terra]], [[Solaris]], [[Aqua]]).
+
+# Appearance
+Zephyrs appearance is dictated by whatever planet he is closest to, as his physical form is completely invisible. When near a planet, he borrows things such as dust or leaves, and creates a type of vortex to swirl around him to give him a visible shape.
+# Personality
+Zephyr is the most laid back of the bunch, and is very vocal about his distaste for any kind of work. Zephyr would rather float around the galaxy for his whole life than create things with his 'lame' (his words not mine) dad. However, because he loves his family, he helps out anyways. Despite his general laziness, Zephyr is very overconfident in his own abilities, and constantly tries to state that he's the strongest (he has yet to win in a fight against Terra, who just locks him in a rock cage that he can't escape from every time).
+# Abilities
+- *Wind Manipulation* - Zephyr is the wind, and the wind is zephyr. Zephyrs powers grow the closer he is to a planet, due to the lack of wind in space besides whatever he naturally exudes from his body. When he does have wind to work with though, he is able to control it in a multitude of ways, such as create highly pressurized gusts that could cut through steel (theoretically, Zephyr however is way too lazy to use that much strength)
