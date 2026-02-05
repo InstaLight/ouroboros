@@ -6,7 +6,7 @@ So, you wanna start reading up about Oroboros! Below will be list of pages to re
 
 # Origins
 - [[The Child]] [Character]
-- [[1 - Creation]] [Event]
+- [[1 - Creation|Creation]] [Event]
 - [[Judgement]] [Character]
 - [[Grimm]] [Character]
 - [[X]] [Character]
@@ -16,4 +16,5 @@ So, you wanna start reading up about Oroboros! Below will be list of pages to re
 - [[Zephyr]] [Character]
 - [[Lux]] [Character]
 - [[Luna]] [Character]
-- [[Love and Death]] [Event]
+- [[2 - Love|Love]] [Event]
+- [[3 - Death|Death]] [Event]
