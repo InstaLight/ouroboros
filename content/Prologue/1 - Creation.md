@@ -33,3 +33,6 @@ Judgement and the child would continue to create, building themselves a place to
 
 As a gift, and apology, to it's two new gods, the child bestowed the ability to self-create offspring. Grimm created two daughters, a goddess of light named [[Lux]], and another of darkness named [[Luna]]. X created four children, being [[Solaris]], [[Terra]], [[Aqua]], and [[Zephyr]]. The child began working with it's new family to create our solar system, filling every corner of the once empty void with wondrous creations and life. Finally, the child felt truly satisfied.
 
+---
+[[2 - Love|Next Chapter]] -->
+
