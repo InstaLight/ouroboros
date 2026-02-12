@@ -25,5 +25,4 @@ Ever since the creation of Grimm and X, the child had sworn off creating new lif
 "Again!" Grimm shouted, the twins thrusting back into action. He sat on the ground twirling his useless knife in his hand. He couldn't stop replaying the scene in his head. "*I love you.*" Why was he incapable of feeling love. Why could he not feel pride in his children. Why won't this emptiness go away. The thoughts were like an infection, rapidly expanding in his mind the more he thought about it. *Why am I the lesser half, why am I so pathetic. Why give me all this strength and nothing to do with it.* Grimm suddenly became aware of a shadow standing over him, as a bruised Lux stood over him, looking at him with the most pathetic eyes. In that moment, something clicked. His disgraced daughter. The knife in his hand. The never ending thoughts. The hole in his chest. Lux did not have time to even form a shield by the time the knife had been fully submerged into her stomach. In that moment, as her soul drained out of her body and into him, everything made sense. He felt love. 
 
 ---
-<--- [[1 - Creation|Previous Chapter]] 
-[[3 - Death|Next Chapter]] --->
+<-- [[1 - Creation|Previous Chapter]] | [[3 - Death|Next Chapter]] -->
