@@ -1,3 +1,9 @@
+---
+Title: Luna
+tags:
+  - character
+---
+
 Luna is the goddess of shadows, a child of [[Grimm]], and the twin sister of [[Lux]]
 
 # Appearance

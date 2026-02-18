@@ -1,5 +1,7 @@
 ---
 Title: The Child
+tags:
+  - character
 ---
 
 **The Creator** is a benevolent force that is behind the creation of the universe. It possesses the ability of creation, which allows them to create matter from nothing but it's thoughts. **The Creator** has no morals or ideals, it simply lives to create as it is the only thing that brings it comfort.

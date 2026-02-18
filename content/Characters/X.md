@@ -1,5 +1,7 @@
 ---
 Title: X
+tags:
+  - character
 ---
 **X** is the god of balance, and one half of the god [[Judgement]]. X was created after Judgement was forcefully ripped into two by [[The Child]], with his other half being [[Grimm]]. X acts as a guiding force for the Creator, ensuring that all of it's creations fit into the natural order of the universe.
 

@@ -1,6 +1,9 @@
 ---
 Title: 2 - Love
+tags:
+  - story
 ---
+#story
 # Characters
 - [[The Child]]
 - [[Grimm]]
