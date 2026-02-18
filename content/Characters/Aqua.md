@@ -1,3 +1,9 @@
+---
+Title: Aqua
+tags:
+  - character
+---
+
 Aqua is the goddess of water, a child of [[X]], and  the youngest of her three siblings ([[Terra]], [[Zephyr]], [[Solaris]]).
 
 # Appearance

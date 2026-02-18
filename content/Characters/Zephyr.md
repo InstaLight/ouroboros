@@ -1,3 +1,9 @@
+---
+Title: Zephyr
+tags:
+  - character
+---
+
 Solaris is the god of winds, a child of [[X]], and  the second youngest of his three siblings ([[Terra]], [[Solaris]], [[Aqua]]).
 
 # Appearance

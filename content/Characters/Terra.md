@@ -1,5 +1,7 @@
 ---
 Title: Terra
+tags:
+  - character
 ---
 Solaris is the god of minerals, a child of [[X]], and  the second oldest of his three siblings ([[Solaris]], [[Zephyr]], [[Aqua]]).
 

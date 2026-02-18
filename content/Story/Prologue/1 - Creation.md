@@ -1,5 +1,7 @@
 ---
 Title: 1 - Creation
+tags:
+  - story
 ---
 
 # Characters

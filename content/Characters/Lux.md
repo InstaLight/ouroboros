@@ -1,3 +1,9 @@
+---
+Title: Lux
+tags:
+  - character
+---
+
 Lux is the goddess of light, a child of [[Grimm]], and the twin sister of [[Luna]].
 
 # Appearance

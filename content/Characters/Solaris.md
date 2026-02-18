@@ -1,5 +1,7 @@
 ---
 Title: Solaris
+tags:
+  - character
 ---
 Solaris is the goddess of flames, a child of [[X]], and  the eldest of her three siblings ([[Terra]], [[Zephyr]], [[Aqua]]).
 

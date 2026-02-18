@@ -1,5 +1,7 @@
 ---
 Title: Grimm
+tags:
+  - character
 ---
 **Grimm** is the god of death, and one half of the god [[Judgement]]. Grimm was created after Judgement was forcefully ripped into two by [[The Child]], with his other half being [[X]]. Due to the childs promise to never harm one of it's creations again, Grimm is assigned to do all the dirty work, destroying and killing any creations that he is told to.
 

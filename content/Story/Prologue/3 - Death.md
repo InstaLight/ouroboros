@@ -1,6 +1,9 @@
 ---
 Title: 3- Love and Death
+tags:
+  - story
 ---
+#story
 # SPOILER WARNING
 The following section contains *spoilers* for the *Prologue* arc of Ouroboros. Make sure you have read **at least** [[1 - Creation|Creation]] and [[2 - Love|Love]] before continuing.
 
