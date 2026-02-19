@@ -17,4 +17,4 @@ The boy rolled over in his bed, quickly shutting off the alarm on his phone. "*T
 
 ---
 
-<-- [[2 - Love|Previous Chapter]] 
+<-- [[2 - Love|Previous Chapter]] | [[Chapter 1]] -->
