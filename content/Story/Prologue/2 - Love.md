@@ -3,20 +3,6 @@ Title: 2 - Love
 tags:
   - story
 ---
-#story
-# Characters
-- [[The Child]]
-- [[Grimm]]
-- [[X]]
-- [[Solaris]]
-- [[Aqua]]
-- [[Terra]]
-- [[Zephyr]]
-- [[Lux]]
-- [[Luna]]
-
-# Story
-
 "Again." Grimm muttered under his breath, his cursed smile masking the disappointment. He watched as his two daughters clashed once again, just as they have for the past dozen centuries. These fights bring him no sense of satisfaction, no pride, no joy, yet for some reason he can't stop watching. While [[X]] is out with his children, creating planets and discovering new uses for their powers, Grimm forces his twins to fight to the brink of death as often as they can. Unlike X, Grimm has no capacity for creation. In fact, Grimm has no real use at all, no purpose. He was born as a weapon who's master would never pull the trigger. There was never anything to kill, anything to destroy. He despised his girls. They were the only things he ever had the ability to create, and they ended up worthless. Worthless, just like his disgusting nieces and nephews, beings that had no right sitting next to his master. *If I was whole again,* Grimm thought, *maybe then I would finally feel something*. He had tried to discuss the matter with X before, but X simply laughed it off before going back with his kin. *Doesn't he remember, doesn't he remember how wonderful we were together?* 
 
 "Please father," [[Luna]] pleaded, "let us have just one day to rest, just this once." Grimm glared at [[Lux]], who lied motionless on the ground. Their fights often ended this way, Luna victorious and Lux just barely hanging on. On the few occasions that Lux would win, it was blatantly obvious that Luna had lost on purpose, to save her sister from even more berating from their father. All of these years of fighting, and neither of them had grown in strength, not even a tiny bit. But then again, would a change in strength even mean anything? Would his failures getting even the least bit stronger bring him any emotion? Why does strength even matter in the first place? Strength was all Grimm knew. Without that, he really would be nothing at all. 

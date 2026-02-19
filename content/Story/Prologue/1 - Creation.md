@@ -4,19 +4,6 @@ tags:
   - story
 ---
 
-# Characters
-- [[The Child]]
-- [[Judgement]]
-- [[Grimm]]
-- [[X]]
-- [[Solaris]]
-- [[Aqua]]
-- [[Terra]]
-- [[Zephyr]]
-- [[Lux]]
-- [[Luna]]
-
-# Story
 In the beginning, there was a child. Floating in a void, the child had no thoughts and no dreams, it only knew the vast emptiness that surrounded it. The child spent its centuries simply sleeping, never aging, never experiencing anything. 
 
 One day, as the child awoke from its rest, for the first time in its life, it spotted something. Drifting only a few feet away was a small speck. The speck was nothing of interest, it held no special properties or importance, nothing more then some dust. Despite how insignificant this dust was, the child was enamored. It floated around the dust, meticulously examining it from every possible angle. Eventually, the child stretched out its tiny arm and gave the dust a light tap. Upon the point of contact, the dust vanished, leaving no trace that it had ever existed in the first place. The  child wept. It cried for days, days that turned into weeks, weeks to months, months to years, and years to decades. All the child knew was the dust, and it wished nothing than for it to return. Eventually, sleep took the child once more. For the first time, the child had a dream.

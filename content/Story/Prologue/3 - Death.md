@@ -3,13 +3,6 @@ Title: 3- Love and Death
 tags:
   - story
 ---
-#story
-# SPOILER WARNING
-The following section contains *spoilers* for the *Prologue* arc of Ouroboros. Make sure you have read **at least** [[1 - Creation|Creation]] and [[2 - Love|Love]] before continuing.
-
----------------------
-# Story
-
 [[X]] doubled over, his whole body screaming out in pain. X had experienced pain in the past, but it was but a small pinch compared to this. It was as it someone was tearing away at a piece of his flesh, as agonizingly slow as possible. [[The Child]] rushed to X's side, grabbing onto his shoulder and asking "What's wrong, is everything alright?" "*Something horrific just happened.*" X responded, before vanishing without a trace.
 X appeared on Earths moon, collapsing from the now persistent pain. Two bodies, no, corpses, laid before him. His nieces, [[Lux]] and [[Luna]], two beings that were once brimming with life, were now lifeless husks. He crawled his way to Lux, digging his fingers into the rough exterior of the moon, and place his hand on her chest. His eyes widened. X was not unfamiliar with death. Accidents would happen, failed experiments with planets would lead to unfortunate explosions, and every once and a while one of his children would temporarily lose their life. However, as long as an individuals soul is in tact, bringing them back was always possible. X scrambled over to Luna, who was just a few feet away, and examined her just as he had done with her sister. Tears began to form in his eyes. Both of their souls were gone. He focused his gaze towards Earth, just as another wave of indescribable agony washed over him.
 
