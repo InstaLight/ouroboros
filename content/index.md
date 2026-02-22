@@ -1,6 +1,7 @@
 ---
 title: Ouroboros Wiki
 ---
+![[IMG_9745.jpg]]
 
 # Introduction
 Welcome to the Ouroboros Wiki page! Here you can look around and read up on the lore of the series.
