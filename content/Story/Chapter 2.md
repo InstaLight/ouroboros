@@ -54,4 +54,4 @@ Author Comment: Kagurabachi and JJK Modulo are lowkey carrying Shonen Jump right
 Song of the Week: Passing out Pieces (Mac Demarco)
 
 ---
-<-- [[Chapter 1]]
+<-- [[Chapter 1]] | [[Chapter 3]] -->
