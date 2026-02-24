@@ -6,7 +6,7 @@ tags:
 
 The next 24 hours were a blur. When Mark arrived to the start of the trail, the police and fire department were everywhere. He saw Andrew, covered in blood, looking like he was in a trance, being escorted to an officers car. Andrew's cronies were also there, being interrogated, looking like they were about to shit their pants. Mark then noticed Tim, who was pointing directly at him, eyes wide like he had seen a ghost. Paramedics rushed over to Mark to examine him, but found no signs of injury, despite the huge splotches of blood that stained his shirt. He had to spend the next 30 minutes trying to convince the poor paramedics that he did not need to go to the hospital, and that he just wanted to get home. To be truthful, Mark wanted nothing more then to go get this stupid gem that was imbedded into him checked out and removed, but he had a feeling that he should keep it hidden until he himself figured out what it was. It didn't seem to be injuring him in anyway, and it emitted a nice warmth that he found comforting. Mark did take up the paramedics offer of fresh clothes however, as he knew if he came home with even a drop of blood on him his mother would flip. 
 
-When he arrived at home, Mark was immediately greeted with a tackle from his dog Nala, who was greeting him like he had just come back from war. 
+When he arrived at home, Mark was immediately greeted with a tackle from his dog, a small boxer mix named Nara, who was greeting him like he had just come back from war. 
 
 "I missed you too, girl." he said as he patted the dogs head.  
 
