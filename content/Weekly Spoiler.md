@@ -1,0 +1,1 @@
+The weekly spoiler is a line from the upcoming chapter, released every Wednesday to give a sneak peek at what's to come!
