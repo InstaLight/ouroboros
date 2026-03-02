@@ -19,4 +19,4 @@ Song of the Week:  [LIAR・SADIST・COWARD (Cymbals)](https://www.youtube.com/w
 
 ---
 
-<-- [[Chapter 2]]
+<-- [[Chapter 2]] | [[Chapter 4]] -->
