@@ -2,7 +2,7 @@
 Title: Chapter 4
 tags:
   - story
-draft: "true"
+draft: "false"
 ---
 The orb floated in the distance, emitting a soft glow that cut through the black void. Despite its distance from him, Mark could still feel its brilliant heat, beating down on him. Behind Mark, a series of bizarre dreams played out, the type of dreams you get when you come down with a nasty fever. Mark broke free from those dreams however, and was now being drawn closer to the orb. Every step he took felt like he was wading through a sea of syrup. His legs were heavy, and his movements were sluggish. The heat intensified with every step, and he felt his skin begin to boil. He continued to trudge through, but it just felt like the orb was getting farther and farther, while at the same time it continued to get hotter and hotter. His body was telling him to return to the dreams, to go with their flow until he would eventually wake up, but his mind persisted. Mark stopped dead in his tracks. The heat was sweltering, but he suddenly went cold. Someone, *something*, was watching him. It's eyes peering from an unknown location. He looked up to his left. He saw-
 
