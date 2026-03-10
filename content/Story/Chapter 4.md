@@ -106,9 +106,6 @@ Mark had completely forgotten. With everything that had happened, it slipped his
   
 
 Author Comment: I turn 22 this week, I'm such an old chud\
-
-  
-
 Song of the Week:  [Distant Lover (Marvin Gaye)](https://www.youtube.com/watch?v=hHkwRNYMRtM&list=RDhHkwRNYMRtM&start_radio=1)
 
   
@@ -117,7 +114,7 @@ Song of the Week:  [Distant Lover (Marvin Gaye)](https://www.youtube.com/watch?
 
   
 
-<-- [[Chapter 3]]
+<-- [[Chapter 3]] | [[Chapter 5]] -->
 
   
   
