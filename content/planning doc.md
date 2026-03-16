@@ -19,15 +19,25 @@ date: september 3rd to 14th
 - mark and vincent start hanging out together regularly both in and out of school
 - mark vincent and tim become their own little squad together in school
 - mark and vincent start training outside of school, trying to come up with ways for mark to effectively use his powers
-- the duo plan to investigate the man in the suit
+- mark sees the man in the suit on his walk home from vincents
 - CHAPTER END
 
 # Chapter 6
-date: september 15th
-- the duo start investigating spots where vincent had been attacked in the past, trying to find a pattern
-- they decide to split up to cover more ground
-- the pair get attacked individually by two strange individuals, both with tiny fragments of crystals embeded into them
-- chapter focuses on vincent, showcasing his one on one abilities
-- vincent wins with minimal effort, showcasing how efficient he's become with his abilities
-- vincent tries to interrogate his attacker, but they die, and the crystal embeded in them disolves 
+date: september 14th-16th
+- mark rushes towards the man in the suit, only to realize he has no way to activate his powers
+- realizes he hears no heartbeat coming from the man
+- the man "slices" mark in half (just an illusion) and mark collapses, before the man disappears
+- mark gets inside his house to make sure his mom is ok and then calls vincent to tell him what happened
+- the next day is marks first cross country race
+- he finishes first without even realizing, his powers giving him enhanced speed
+- noticies molly was watching, and she smiles at him before walking away with friends
+- vincent was also there watching, and the two of them talk
+- vincent tells mark about all the times he got attack, and how they all had a crystal embeded into their forehead
+- they decide to lure out an attack, going to previous attack sites separately
+- vincent see's the man in the suit holding someone
+- vincent rushes over, the man in the suit drops the person and disappears
+- the person looks at vincent with a crystal in their head and attacks
+- he dispatches the enemy with ease, holding back his strength to knock them out
+- the crystal fades away
+- cut to mark, who is being led down an ally way by a mysterious individual
 - CHAPTER END
