@@ -72,7 +72,7 @@ It was the man in the suit.
 ---
 
 Author Comment: I went to a bar arcade for my birthday! Marvel vs. Capcom was my favorite machine.\
-Song of the Week:  [King of Echo Park (TV Girl)](https://www.youtube.com/watch?v=a_9VJKRR7Kk&list=RDa_9VJKRR7Kk&start_radio=1)
+Outro Song:  [King of Echo Park (TV Girl)](https://www.youtube.com/watch?v=a_9VJKRR7Kk&list=RDa_9VJKRR7Kk&start_radio=1)
 
 ---
 

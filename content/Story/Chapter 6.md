@@ -66,12 +66,8 @@ Vincent sat on a bench, enjoying the yellowing leaves, the sounds of people's fe
 ---
 
 Author Comment: I got a shiny Squirtle in the Switch release of Pokémon FireRed! Hunting for a shiny Porygon now!  
-Song of the Week:  [Speed Racer (Hers)](https://www.youtube.com/watch?v=-JfjuaZjVgs&list=RD-JfjuaZjVgs&start_radio=1)
+Outro Song:  [Speed Racer (Hers)](https://www.youtube.com/watch?v=-JfjuaZjVgs&list=RD-JfjuaZjVgs&start_radio=1)
 
 ---
 
-<-- Chapter 5
-
-  
-  
-**
+<-- [[Chapter 5]]
