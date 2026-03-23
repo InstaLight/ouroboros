@@ -3,7 +3,7 @@ title: Ouroboros Wiki
 ---
 > [!hint] Next Chapter
 > 
-> Chapter 7: March 22nd, 2026
+> Chapter 8: March 29th, 2026
 # Introduction
 
 Welcome to the Ouroboros Wiki page! Here you can look around and read up on the lore of the series.\
