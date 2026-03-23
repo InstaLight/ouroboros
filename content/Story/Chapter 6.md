@@ -70,4 +70,4 @@ Outro Song:  [Speed Racer (Hers)](https://www.youtube.com/watch?v=-JfjuaZjVgs&l
 
 ---
 
-<-- [[Chapter 5]]
+<-- [[Chapter 5]] | [[Chapter 7]] -->
