@@ -3,8 +3,6 @@ Title: Chapter 7
 tags:
   - story
 ---
-**
-
 Vincent reeled back in pain, dropping the boy. He clutched his right hand, which felt as though thousands of watts ran though it, to see a recently formed crack in his crystal. He looked back at the boy, who was now standing, a large spike now protruding from his back. Slowly, hundreds of metal spikes begin protruding from the boy's flesh, the sight being as grotesque as one may imagine. Tears streaked the boy's face, but the smile persisted, his mind cried out for his help while his body acted, as if it was being pulled by some unknown force. Vincent winced, watching the boy's body tear itself apart. Out of all the innocent people that were sent after him, this was the youngest. Refusing to let his body be overwhelmed by his emotions, Vincent took a step back, sat down on the grassy floor, and began his meditation. He blocked out the danger that was currently ahead of him, and focused on everything else. The ants that walked passed his hands, the food they were carrying back to their colony. The birds rushing by, migrating before fall had fully arrived. The boy began to rush towards him, a human pincushion with spikes sharp enough to pierce even Vincent's rock hard flesh. Among the animalistic sounds coming out of the boy, Vincent heard a small voice. The boy, trapped in his own shell of a body, crying for his mother. Eyes remaining closed, Vincent pressed his palms deeper into the Earth, the ground around them beginning to tremble. Vincent opened his eyes to see a sight even he could not fully believe. Centimeters from his face rested a spike that protruded from the boy's fingertip, while the rest of his body, with the exception of his face, was fully entombed in rock. The boy, who was still conscious, screamed and tried trashed around, attempting to free himself from his new prison. Vincent got up close to his face, reassuring the boy, "Everything is going to be okay now, I got you."  
 Vincent moved the boy's hair out of the way to reveal the shadow-like crystal he had spotted earlier. He reached out his left hand, attempting to touch the crystal, only to be met with a strange resistance, like when magnets repel one another. Vincent tried to push through the barrier, but it was no use, his hand shot back every time he got too close. The boy continued to struggle, his yells getting louder by the minute, Vincent's anxiety beginning to shoot through the roof. "This would not be a good look if someone came by right now," he thought to himself, "I gotta get this kid out of here."  
 Just then, the boy stopped screaming, the yells being replaced with silent sobbing. He made eye contact with Vincent, as the crystal on his forehead began to shatter.  
@@ -70,7 +68,4 @@ Author Comment: Saw [Project Hail Mary](https://en.wikipedia.org/wiki/Project_Ha
 
 ---
 
-<-- Chapter 5
-
-  
-**
+<-- [[Chapter 5]]
