@@ -68,4 +68,4 @@ Author Comment: Saw [Project Hail Mary](https://en.wikipedia.org/wiki/Project_Ha
 
 ---
 
-<-- [[Chapter 5]]
+<-- [[Chapter 6]] | [[Chapter 8]]
