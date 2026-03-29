@@ -59,7 +59,7 @@ Vincent swerved between traffic, causing some angry drivers to blast their horns
 Vincent just smiled in response.  
 Mark put his head against the headrest and closed his eyes. He ran his fingers over the crystal through his shirt, feeling its warmth.  
 "I know you wanna be a super-hero too. I'm sureeeee Molly would be impressed too."  
-Mark side-eyed Vincent, who was still grinning from cheek to cheek. Mark yelled into his hands, before dropping them and sighing.\  
+Mark side-eyed Vincent, who was still grinning from cheek to cheek. Mark yelled into his hands, before dropping them and sighing.\
 "We need super hero identities. And no lame costumes. I'll kill you if you make me wear a lame costume."
 
 ---
