@@ -17,7 +17,7 @@ The door broke open, the waves crashing through as though they were trying to ra
 Mark jumped, his left hand reaching out to grab hold of the orb. The waves grazed his foot, their strength pulling Mark back. He outstretched out arm as far as it would go, his finger tip just barely making contact with the orb. It burned, the same burn that he felt when he would ignite his blood. The silence came rushing back. The waves ceased to exist. The dreams resumed. Mark got up and placed both hands on the orb, ready to accept whatever pain would follow. It felt as though he held the sun in the palm of his hands. He could only hold on for a split second. A soft, warm voice filled his mind. A woman's voice, motherly in nature, spoke to him.  
 "Hello Mark, my name is-"  
 He shot back, unable to bear the flames any further. He looked up. Those eyes. Those deep, indigo-  
-The roar of an old desktops fans. The cricket that sits by your window. The radio playing the same tune. The brother that isn't real. The girl that you never met, and never will meet. Not in this life, at least.\
+The roar of an old desktops fans. The cricket that sits by your window. The radio playing the same tune. The brother that isn't real. The girl that you never met, and never will meet. Not in this life, at least.
 
 ---
 
