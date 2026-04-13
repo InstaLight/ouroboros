@@ -70,4 +70,4 @@ Author Comment: Im so tempted to get a Switch 2 right now.
 
 ---
 
-<-- [[Chapter 7]] 
+<-- [[Chapter 7]] | [[Chapter 9]] -->
