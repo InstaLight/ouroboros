@@ -3,7 +3,7 @@ title: Ouroboros Wiki
 ---
 > [!hint] Next Chapter
 > 
-> Chapter 8: April 19th, 2026
+> Chapter 10: April 26th, 2026
 # Introduction
 
 Welcome to the Ouroboros Wiki page! Here you can look around and read up on the lore of the series.\
@@ -20,7 +20,7 @@ Start by reading the [[1 - Creation|Prologue]] and then go from there!
 ## [[Changelog]]
 
 ## Weekly Spoiler[[Weekly Spoiler|*]]
-"[Birds Don't Sing](https://www.youtube.com/watch?v=KTyrYafcS3Y)" TV Girl
+
 
 
 ![[IMG_9745.jpg]]
