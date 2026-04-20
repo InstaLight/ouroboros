@@ -91,4 +91,4 @@ Author Comment: I got a switch 2 and I've been playing Xenoblade X nonstop! Now,
 
 ---
 
-<-- [[Chapter 8]]
+<-- [[Chapter 8]] | [[Chapter 9.5]] -->
