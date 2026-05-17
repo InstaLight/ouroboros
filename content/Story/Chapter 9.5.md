@@ -1,5 +1,7 @@
 ---
 Title: Chapter 9.5
+tags:
+  - story
 ---
 # Entry #1: Mark
 
@@ -93,5 +95,5 @@ Author Comment: Wowie! The first ever "bonus" chapter! I'll be doing these every
 
 ---
 
-<-- [[Chapter 8]]
+<-- [[Chapter 8]] | [[Chapter 10]] ->
 
