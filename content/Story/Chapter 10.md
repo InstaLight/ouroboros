@@ -71,7 +71,4 @@ Author Comment: I graduated college, no more school for me! on a more important 
 
 ---
 
-<-- Chapter 9.5 | Chapter 11 -->
-
-  
-**
+<-- [[Chapter 9.5]]

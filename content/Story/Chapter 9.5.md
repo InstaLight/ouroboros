@@ -34,7 +34,8 @@ Favorite Book: Ready Player One
 
 - When exposed to air, Mark's blood can be, how he says, "ignited". Upon ignition, the exposed blood bursts into flame, often accompanied by a concussive blast. We will be testing the range of ignition, seeing how far away Mark can be from the blood he's trying to ignite, and if it affects its properties in any way.
     
-- Upon ignition, Mark's flames stick to his blood, giving a slight healing factor, as well as an increase in strength to the affected areas. From what we can tell, Mark's healing factor is relatively weak. While it can close wounds and stop active bleeding, it appears that he is unable to replenish the blood he lost, meaning that he can pass out or even die from blood loss. Additionally, we are unsure if conditions such as sickness or internal bleeding can be healed by the flames.
+- Upon ignition, Mark's flames stick to his blood, giving a slight healing factor, as well as an increase in strength to the affected areas. From what we can tell, Mark's healing f  
+**actor is relatively weak. While it can close wounds and stop active bleeding, it appears that he is unable to replenish the blood he lost, meaning that he can pass out or even die from blood loss. Additionally, we are unsure if conditions such as sickness or internal bleeding can be healed by the flames.
     
 
 ## EXPERIMENTS
