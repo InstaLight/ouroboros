@@ -51,7 +51,7 @@ After what happened that Monday, any normal person would have never stepped foot
 
 ---
 Author Comment: Kagurabachi and JJK Modulo are lowkey carrying Shonen Jump right now \
-Outro Song: [Passing out Pieces (Mac Demarco)](https://www.youtube.com/watch?v=6Lk3NFWw9Fg&list=RD6Lk3NFWw9Fg&start_radio=1)
+Outro Song: [Bodysnatchers (Radiohead)](https://www.youtube.com/watch?v=nIQxhSvSRnQ)
 
 ---
 <-- [[Chapter 1]] | [[Chapter 3]] -->
