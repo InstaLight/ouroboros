@@ -1,7 +1,7 @@
 ---
 title: Ouroboros Wiki
 ---
-> [!hint] Next Chapter
+xx> [!hint] Next Chapter
 > 
 > Chapter 11: May 24th, 2026
 # Introduction
@@ -19,7 +19,6 @@ Start by reading the [[1 - Creation|Prologue]] and then go from there!
 ## [[Announcements]] ([[Prologue is Finished!|Recent Announcement]])
 ## [[Changelog]]
 
-## Weekly Spoiler[[Weekly Spoiler|*]]
 
 
 

@@ -1,1 +1,0 @@
-The weekly spoiler is the next chapters outro song! It could be teasing the tone of the chapter, lyrics may be hinting at the fates of our beloved characters, or it could just be a song I really like! Guess you'll just have to wait and see!
