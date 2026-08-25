@@ -1,9 +1,9 @@
 ---
 title: Ouroboros Wiki
 ---
-xx> [!hint] Next Chapter
+> [!warning] Hiatus 
 > 
-> Chapter 11: May 24th, 2026
+> Ouroboros is currently on Hiatus! Please check back later!
 # Introduction
 
 Welcome to the Ouroboros Wiki page! Here you can look around and read up on the lore of the series.\
@@ -13,10 +13,10 @@ Ouroboros is a live project! Everything written is subject to change overtime, b
 Ouroboros is a action adventure series inspired by early 2000s cartoons and shonen manga. The series began back in 2012 and has been getting updates ever since. This wikipedia is the first ever official publication of the series, and will be the main way of reading for the foreseeable future.
 
 ## Where do I begin?
-Start by reading the [[1 - Creation|Prologue]] and then go from there!
+Start by reading [[Chapter 1]] and then go from there!
 
 # Some other important stuff:
-## [[Announcements]] ([[Prologue is Finished!|Recent Announcement]])
+## [[Announcements]] ([[Arc 1 is finished! | Recent Announcement]])
 ## [[Changelog]]
 
 
