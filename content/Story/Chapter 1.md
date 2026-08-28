@@ -17,7 +17,6 @@ His body laid at the bottom of a trench, bloodied and mangled. The blood seeping
 Mark awoke to the world around him on fire. First, he heard the flames roar, then he smelled the burning wood. When he opened his eyes, the entire forest around him was on fire. Temporarily forgetting the whole ordeal he bolted upwards, screaming "HOLY SHIT I'M GONNA DIE." He snapped back to reality, as memories of the past 24-hours began flooding in. *How am I alive right now? Is this hell?* For the second time today, he began sprinting like his life depended on it, finally making it to a clearing by the parking lot where he started his run. In his moment of rest, he began examining himself for his injuries, which to his astonishment were completely nonexistent. If it weren't for the cut shirt and huge blood stains, you would think he went for a walk in the park. He didn't even get any burns from the flames. He lifted up his shirt to look closer, and his eye's widened. Planted dead center in his chest laid a crimson crystal, which was currently emitting a soft glow. 
 
 *What. the. fuck*. 
-test addition!!!
 
 ---
 <-- [[1 - Creation|Prologue]] | [[Chapter 2]] -->
