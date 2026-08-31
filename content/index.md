@@ -1,9 +1,9 @@
 ---
 title: Ouroboros Wiki
 ---
-> [!warning] Hiatus 
+> [!hint] Next Chapter 
 > 
-> Ouroboros is currently on hiatus
+> Chapter 15.5 (Intermission): September 13th, 2026
 # Introduction
 
 Welcome to the Ouroboros Wiki page! Here you can look around and read up on the lore of the series.\
