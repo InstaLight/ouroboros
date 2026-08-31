@@ -1,9 +1,9 @@
 ---
 title: Ouroboros Wiki
 ---
-> [!hint] Next Chapter 
+> [!hint] Next Chapter: September 13th, 2026
 > 
-> Chapter 15.5 (Intermission): September 13th, 2026
+> Chapter 15.5 - Intermission
 # Introduction
 
 Welcome to the Ouroboros Wiki page! Here you can look around and read up on the lore of the series.\
